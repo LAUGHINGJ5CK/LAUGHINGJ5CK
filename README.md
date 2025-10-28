@@ -1,5 +1,7 @@
 <img width="279" height="350" alt="image" src="https://github.com/user-attachments/assets/4a6cbfa5-4e20-4fde-b94d-031ad9fbe5fc" /> 
 
+![](https://komarev.com/ghpvc/?username=LAUGHINGJ5CK&color=lightgrey&label=Victims-Grabbed)
+
 HIA!!
 
 My names LJ- or whatever you wanna call me! I go by the pronouns She/Her, i wear glasses so dont mind if im a bit BLIND, i have ADHD and a bit of autisim so please dont mind me if im a bit slow, i do get buthurt over some small things i dont like talking about so please dont mind me, if your rude to me or just racist or anytype of phobic [besides the bad ones] i will freely block you for a cupple of days
