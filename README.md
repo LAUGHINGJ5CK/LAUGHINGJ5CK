@@ -1,6 +1,6 @@
 <img width="279" height="350" alt="image" src="https://github.com/user-attachments/assets/4a6cbfa5-4e20-4fde-b94d-031ad9fbe5fc" /> 
 
-![](https://komarev.com/ghpvc/?username=LAUGHINGJ5CK&color=lightgrey&label=Victims-Grabbed)
+![](https://komarev.com/ghpvc/?username=LAUGHINGJ5CK&color=000000&label=Victims-Grabbed)
 
 HIA!!
 
