@@ -14,7 +14,7 @@ Im really into a bunch of fandoms and would probbly update this once i figure ou
 
 FANDOMS: MLP, CreepyPasta, FNAF, Dandys World, Monster High, Inside-The game, Piggy, DBH, Marvel, DC, CRK, SCP, Andys apple farm, BATIM, IT, Harry Potter, Undertale, Little Nightmares, Little misfortune, FranBow, Cuphead, Poppy Playtime, Beastars- TBC
 
-MY MAIN FRIENDS- NostalgicSplatterlingSys , Asexual-Girl , Mordecai-thebird , EYEL3SSJACK , Ollie , AverageVaeb - and TBC
+MY MAIN FRIENDS- NostalgicSplatterlingSys , Asexual-Girl , Mordecai-thebird , EYEL3SSJACK , Ollie , AverageVaeb , fizzysprout , - and TBC
 
 Thats all for now my friends! big thank you to everyone who follows me [and who have read this far] I will keep updating this whenever! hope ya have a good day or night, 
 
