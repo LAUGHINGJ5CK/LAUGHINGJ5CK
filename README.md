@@ -1,4 +1,4 @@
-<img width="279" height="350" alt="image" src="https://github.com/user-attachments/assets/4a6cbfa5-4e20-4fde-b94d-031ad9fbe5fc" />
+<img width="279" height="350" alt="image" src="https://github.com/user-attachments/assets/4a6cbfa5-4e20-4fde-b94d-031ad9fbe5fc" /> 
 
 HIA!!
 
@@ -12,7 +12,7 @@ Im really into a bunch of fandoms and would probbly update this once i figure ou
 
 <img width="28" height="28" alt="image" src="https://github.com/user-attachments/assets/8184bf6d-eb0a-403e-a38b-f951db29a853" />
 
-FANDOMS: MLP, CreepyPasta, FNAF, Dandys World, Monster High, Inside-The game, Piggy, DBH, Marvel, DC, CRK, SCP, Andys apple farm, BATIM, IT, Harry Potter, Undertale, Little Nightmares, Little misfortune, FranBow, - TBC
+FANDOMS: MLP, CreepyPasta, FNAF, Dandys World, Monster High, Inside-The game, Piggy, DBH, Marvel, DC, CRK, SCP, Andys apple farm, BATIM, IT, Harry Potter, Undertale, Little Nightmares, Little misfortune, FranBow, Cuphead, Poppy Playtime, Beastars- TBC
 
 MY MAIN FRIENDS- NostalgicSplatterlingSys , Asexual-Girl , Mordecai-thebird , EYEL3SSJACK , Ollie , AverageVaeb - and TBC
 
