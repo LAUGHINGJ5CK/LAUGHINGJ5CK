@@ -2,7 +2,7 @@
 
 ![](https://komarev.com/ghpvc/?username=LAUGHINGJ5CK&color=000000&label=Victims-Grabbed)
 
-HIA!!
+HIA!! plosb follow me, on the road to 100 !! - If not thats okay! i still love ya <3
 
 My names LJ- or whatever you wanna call me! I go by the pronouns She/Her, i wear glasses so dont mind if im a bit BLIND, i have ADHD and a bit of autisim so please dont mind me if im a bit slow, i Can get very upset over some small things that i dont like talking about so please dont mind me, if your rude to me or just racist or anytype of phobic [besides the bad ones] i will freely block you for a cupple of days
 
