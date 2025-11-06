@@ -1,5 +1,7 @@
 **<img width="1000" height="200" alt="image" src="https://github.com/user-attachments/assets/b8c6a18b-3377-4fdf-920d-9ea2f0c12651" />**
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10&pause=1000&color=FFFFFF&width=435&lines=Whant+Some+Candy+Kid?;Come+one,+come+all!+Whether+big+or+small!;+To+see+the+best+clown+of+them+all!!;+The+one,+the+only,+LAUGHING+JACK;Free+Hugs+!;.+.+.)](https://git.io/typing-svg)
+
 ![](https://komarev.com/ghpvc/?username=LAUGHINGJ5CK&color=000000&label=Victims-Grabbed)
 
 
