@@ -1,6 +1,4 @@
-**<img width="1000" height="250" alt="image" src="https://github.com/user-attachments/assets/b8c6a18b-3377-4fdf-920d-9ea2f0c12651" />**
-
-<img width="279" height="350" alt="image" src="https://github.com/user-attachments/assets/4a6cbfa5-4e20-4fde-b94d-031ad9fbe5fc" /> 
+**<img width="1000" height="200" alt="image" src="https://github.com/user-attachments/assets/b8c6a18b-3377-4fdf-920d-9ea2f0c12651" />**
 
 ![](https://komarev.com/ghpvc/?username=LAUGHINGJ5CK&color=000000&label=Victims-Grabbed)
 
@@ -21,7 +19,12 @@ FANDOMS: MLP, CreepyPasta, FNAF, Dandys World, Monster High, Inside-The game, Pi
 
 MY MAIN FRIENDS- NostalgicSplatterlingSys , Asexual-Girl , Mordecai-thebird , EYEL3SSJACK , Ollie , AverageVaeb , fizzysprout , - and TBC
 
-Thats all for now my friends! big thank you to everyone who follows me [and who have read this far] I will keep updating this whenever! hope ya have a good day or night, 
+
+<img width="279" height="350" alt="image" src="https://github.com/user-attachments/assets/4a6cbfa5-4e20-4fde-b94d-031ad9fbe5fc" /> 
+
+
+
+Thats all for now my friends! big thank you to everyone who follows me [and who have read this far] I will keep updating this whenever! hope ya have a good day or night 
 
 <img width="600" height="100" alt="image" src="https://github.com/user-attachments/assets/9d09abd5-036f-4f9b-84d8-ee2cbb712629" />
 
