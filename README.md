@@ -1,6 +1,9 @@
+**<img width="1000" height="250" alt="image" src="https://github.com/user-attachments/assets/b8c6a18b-3377-4fdf-920d-9ea2f0c12651" />**
+
 <img width="279" height="350" alt="image" src="https://github.com/user-attachments/assets/4a6cbfa5-4e20-4fde-b94d-031ad9fbe5fc" /> 
 
 ![](https://komarev.com/ghpvc/?username=LAUGHINGJ5CK&color=000000&label=Victims-Grabbed)
+
 
 HIA!! please follow me, on the road to 100 !! - If not thats okay! i still love ya <3
 
