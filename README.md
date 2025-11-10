@@ -28,7 +28,8 @@ MY MAIN FRIENDS- NostalgicSplatterlingSys , Asexual-Girl , Mordecai-thebird , EY
 
 Thats all for now my friends! big thank you to everyone who follows me [and who have read this far] I will keep updating this whenever! hope ya have a good day or night 
 
-<img width="600" height="100" alt="image" src="https://github.com/user-attachments/assets/9d09abd5-036f-4f9b-84d8-ee2cbb712629" />
+<img width="1000" height="200" alt="image" src="https://github.com/user-attachments/assets/7e1ce332-a979-412e-8de8-613015b9144c" />
+
 
  3FS IS SO ME <3 
 
