@@ -2,7 +2,7 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10&pause=1000&color=FFFFFF&width=435&lines=Whant+Some+Candy+,+Kid?;Come+one,+come+all!+Whether+big+or+small!;+To+see+the+best+clown+of+them+all!!;+The+one,+the+only,+LAUGHING+JACK;Free+Hugs+!;.+.+.;Wanna+Play+With+Me+?)](https://git.io/typing-svg)
 
-![](https://komarev.com/ghpvc/?username=LAUGHINGJ5CK&color=000000&label=Victims-Grabbed)
+![](https://komarev.com/ghpvc/?username=LAUGHINGJ5CK&color=000000&label=Victims+⚠︎+Grabbed)
 
 
 HIA!! please follow me, on the road to 100 !! - If not thats okay! i still love ya <3
