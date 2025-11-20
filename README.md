@@ -24,14 +24,14 @@
 
 <p align="center"><img width="279" height="350" alt="image" src="https://github.com/user-attachments/assets/4a6cbfa5-4e20-4fde-b94d-031ad9fbe5fc" /> 
 
-
+<p align="center">Currently have a cute boyfriend
 
 <p align="center">Thats all for now my friends! big thank you to everyone who follows me [and who have read this far] I will keep updating this whenever! hope ya have a good day or night 
 
 <p align="center"><img width="1000" height="200" alt="image" src="https://github.com/user-attachments/assets/7e1ce332-a979-412e-8de8-613015b9144c" />
 
 
- 3FS IS SO ME <3 
+ <p align="center">3FS IS SO ME <3 
 
  <img width="194" height="259" alt="image" src="https://github.com/user-attachments/assets/4f816a8f-856f-4cb0-abe4-3c560c09e744" />
 
