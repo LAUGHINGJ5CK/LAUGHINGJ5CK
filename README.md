@@ -28,6 +28,8 @@
 
 <p align="center">Currently have a cute boyfriend
 
+<p align="center">NUMBER ONE FEMBOY HATER I HATE THEM <3
+
 <p align="center">Thats all for now my friends! big thank you to everyone who follows me [and who have read this far] I will keep updating this whenever! hope ya have a good day or night 
 
 <p align="center"><img width="1000" height="200" alt="image" src="https://github.com/user-attachments/assets/7e1ce332-a979-412e-8de8-613015b9144c" />
