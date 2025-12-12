@@ -21,7 +21,7 @@
 
 <p align="center">FANDOMS: MLP, CreepyPasta, FNAF, Dandys World, Monster High, Inside-The game, Piggy, DBH, Marvel, DC, CRK, SCP, Andys apple farm, BATIM, IT, Harry Potter, Undertale, Little Nightmares, Little misfortune, FranBow, Cuphead, Poppy Playtime, Beastars , Sonic , The Walten Files , Pokemon , FNF , Brawl Stars , - TBC
 
-<p align="center">MY MAIN FRIENDS- NostalgicSplatterlingSys , Asexual-Girl , Mordecai-thebird , EYEL3SSJACK , Ollie , AverageVaeb , fizzysprout , - and TBC
+<p align="center">MY MAIN FRIENDS- Ollie , Bear/ThatRoyalBeast , toby , EJ- and TBC
 
 
 <p align="center"><img width="279" height="350" alt="image" src="https://github.com/user-attachments/assets/4a6cbfa5-4e20-4fde-b94d-031ad9fbe5fc" /> 
