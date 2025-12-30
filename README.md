@@ -19,7 +19,7 @@
 
 <p align="center"><img width="28" height="28" alt="image" src="https://github.com/user-attachments/assets/8184bf6d-eb0a-403e-a38b-f951db29a853" />
 
-<p align="center">FANDOMS: MLP, CreepyPasta, FNAF, Dandys World, Monster High, Inside-The game, Piggy, DBH, Marvel, DC, CRK, SCP, Andys apple farm, BATIM, IT, Harry Potter, Undertale, Little Nightmares, Little misfortune, FranBow, Cuphead, Poppy Playtime, Beastars , Sonic , The Walten Files , Pokemon , FNF , Brawl Stars , - TBC
+<p align="center">FANDOMS: MLP, CreepyPasta, FNAF, Dandys World, Monster High, Inside-The game, Piggy, DBH, Marvel, DC, CRK, SCP, Andys apple farm, BATIM, IT, Harry Potter, Undertale, Little Nightmares, Little misfortune, FranBow, Cuphead, Poppy Playtime, Beastars , Sonic , The Walten Files , Pokemon , FNF , Brawl Stars , Avatar , - TBC
 
 <p align="center">MY MAIN FRIENDS- Ollie , toby , EJ- and TBC
 
